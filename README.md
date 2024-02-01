@@ -1,0 +1,2 @@
+# konkurs
+ooo
